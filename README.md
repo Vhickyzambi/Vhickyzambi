@@ -4,7 +4,7 @@
 
 ## 🚀 Sobre mim
 
-°Olá, bem vindo ao perfil de uma futura full-stack, sei que visa ver minhas habilidades,conhecimentos e minhas possiveis façanhas e conquistas. Mais primeiro deixe-me me apresentar: eu sou Vitória atualmente tenho 16 anos, uma jovem curiosa, que gosta de descobrir e explorar coisas novas seja um gosto musical, um novo jogo ou ate mesmo no mercado de trabalho.
+°Olá, bem vindo ao perfil de uma futura full-stack, sei que visa ver minhas habilidades,conhecimentos e minhas possiveis façanhas e conquistas. Mais primeiro deixe-me me apresentar: eu sou Vitória atualmente tenho 17 anos, uma jovem curiosa, que gosta de descobrir e explorar coisas novas, seja um gosto musical, um novo jogo ou ate mesmo no mercado de trabalho.
 
 ## porque escolheu a tecnologia?💻
 
